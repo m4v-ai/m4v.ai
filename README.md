@@ -12,6 +12,8 @@ M____ For V____.
 
 What I find interesting is that the meaning remains open — Media For Vision, Media For Video, Model For Vision, or something entirely different.
 
-You may be one of the few that immediately came to mind when thinking about where such a brand could naturally fit.
+Not every name fits every company.
 
-Thought I'd share the idea.
+But every so often, a name appears that feels as though it was made for a particular vision.
+
+M4V may be one of those names.
